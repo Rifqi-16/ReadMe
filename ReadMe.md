@@ -1,4 +1,4 @@
-![Hai](ReadMe.md/images/OnePieceMeme.jpg) 
+![Hai](https://i.pinimg.com/control/564x/90/68/0c/90680cd518ffc9160835c0e7ce773197.jpg) 
 
 #  👋 Hi, i'm Muhamad Rifqi Ramadani
 ## Currently studying at Revou Academy
